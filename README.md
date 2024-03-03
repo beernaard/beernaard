@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I am Diamond in League of Legends**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: lagocbj11@gmail.com</h3>
 <p align="left">
 </p>
 
